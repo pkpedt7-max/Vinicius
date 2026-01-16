@@ -1,2 +1,0 @@
-# Vinicius
-É um negócio 
